@@ -47,7 +47,7 @@ a area de medicida de T.I / agricultura / designer gráfico
  
  
  
-e esse é como eu me sinto aprendendo o basico:
+espero que tenham gostado se quiser chamar 18 99813 8942
                         
                   👑                👑              👑
                   👑👑           👑👑👑         👑👑          
