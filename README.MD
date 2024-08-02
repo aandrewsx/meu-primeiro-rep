@@ -37,6 +37,8 @@
 
 💻👨🏻‍💻-seguranças de dados/
 
+a area de medicida de T.I / agricultura / designer gráfico
+
 
 ----
 
