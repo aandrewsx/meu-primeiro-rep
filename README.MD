@@ -43,11 +43,14 @@ a area de medicida de T.I / agricultura / designer gráfico
 ----
 
 
+ - Experiência com HTML, CSS, JavaScript e Bootstrap.
+ - Habilidade em criação de wireframes e protótipos usando Figma.
+ - Familiaridade com Git e GitHub.
+ - Experiência com integração de APIs.
  
  
  
- 
-espero que tenham gostado se quiser chamar 18 99813 8942
+espero que tenham gostado se quiser chamar para contato n=18 99813 8942
                         
                   👑                👑              👑
                   👑👑           👑👑👑         👑👑          
