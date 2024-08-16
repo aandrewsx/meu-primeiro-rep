@@ -17,25 +17,25 @@
 **Coisas que pretendo seguir:** 
 
 
-👑-vendas online, de produtos/afiliado.
+-vendas online, de produtos/afiliado.
 
 
-💎-desenvolvimentos de apps e games, em alta demanda.
+-desenvolvimentos de apps e games, em alta demanda.
 
 
-👑-Criador de animaçaões ou edições de video
+-Criador de animaçaões ou edições de video
 
 
-💎-Trader/analista de ações
+-Trader/analista de ações
 
 
-👑-Criar minha loja/virtual ou fisica.
+-Criar minha loja/virtual ou fisica.
 
 
-💎-Criador de conteudo
+-Criador de conteudo
 
 
-💻👨🏻‍💻-seguranças de dados/
+-seguranças de dados/
 
 a area de medicida de T.I / agricultura / designer gráfico
 
